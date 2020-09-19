@@ -1,1 +1,1 @@
-CV
+Full name: Muxtarjonov MuxammadQodir.
